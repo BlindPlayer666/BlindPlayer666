@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @BlindPlayer666
 - 👀 I’m interested in Football,Cooking,PC
 - 🌱 I’m currently learning Reptile Technology
-- 💞️ I’m looking to collaborating on Any Asoect
+- 💞️ I’m looking to collaborating on Any Aspect
 - 📫 How to reach me **Take your luck!!!!!**
 
 <!---
